@@ -3,4 +3,4 @@ I am Aarush Oberoi, a high school Grade 9 student and this is my portfolio websi
 
 No copying of code or publishing it is allowed in any case for this website it is only for educational and showcase purposes.
 
-Copyright belongs to Aarush Oberoi, 2026
+Copyright© 2026 Aarush Oberoi. All rights reserved.
